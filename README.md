@@ -14,7 +14,7 @@
 
 [**翻墙功夫网 :100:**](https://51across.org/register?aff=10152)
 
-这是我所选择的服务器提供商，IPLC专线翻墙、稳定、速度快、价格便宜。欢迎大家使用我的推广链接前去注册。https://iplc.store/register?aff=6476
+这是我所选择的服务器提供商，IPLC专线翻墙、稳定、速度快、价格便宜。欢迎大家使用我的推广链接前去注册。https://51across.org/register?aff=10152
 
 ## Download
 
